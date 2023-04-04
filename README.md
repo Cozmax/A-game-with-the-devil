@@ -1,5 +1,5 @@
 # A game with the devil
-Would you accept it?
+Would you accept?
 
 Concurs Severin Bumbarul
 
